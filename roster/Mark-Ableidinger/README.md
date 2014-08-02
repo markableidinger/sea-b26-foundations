@@ -10,11 +10,11 @@ I like frisbees and board games and Python
 
 
 
-My Github account is [here](https://github.com/markableidinger) 
+My Github account is [markableidinger](https://github.com/markableidinger) 
 
 
 
-My LinkedIn is [here](url) (although it hasn't been updated in months)
+My LinkedIn is [here](https://www.linkedin.com/profile/view?id=191143854) (although it hasn't been updated in months)
 
 
 
